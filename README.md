@@ -1,4 +1,4 @@
-## Hello!! I'm Althea Bianca G. Gonzales 🚀 🌠 
+## Hello!! I'm Althea Bianca G. Gonzales 🚀 🌠 🦆🐤
 - I possess a strong aptitude for coding and adept database management skills. I excel in addressing intricate problems and formulating refined solutions. My venture into the tech realm commenced with my enrollment in the BS Computer Science program.
 
 ## Education 📑 :
